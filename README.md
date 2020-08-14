@@ -1,1 +1,1 @@
-# MelancholyAstronaut.github.io
+http://www.aynu.edu.cn/
